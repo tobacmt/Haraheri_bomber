@@ -1,3 +1,6 @@
 # Haraheri_bomber
 
-* koyama saki
+* わたなべ
+* やまもと　わたなべ　やぐら　こやま
+* やぐう
+* こやま
